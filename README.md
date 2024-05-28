@@ -1,6 +1,6 @@
 
 
-> **Warning**: Do not sell this script.
+> **Warning**: Do not sell this script.ok
 
 <center>
 
